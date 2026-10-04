@@ -1,1 +1,1 @@
-# media-ranting-pnu-jti
+MEDIA RANTING IPNU IPNU JATIGUWI
